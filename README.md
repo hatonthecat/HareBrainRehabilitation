@@ -2,8 +2,10 @@
 
 
 Associated Press
+
 For Immediate Release
-08/22/20236
+
+08/22/2023
 
 
 New York- Rehabilitation of "Hare-brained" featuring ataraxic Bugs Bunny
