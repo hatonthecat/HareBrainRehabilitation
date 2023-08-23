@@ -1,4 +1,4 @@
-# HareBrainRehabilitation
+# Hare Brain Rehabilitation
 Rehabilitation of "Hare-brained" featuring ataraxic Bugs Bunny
 
 ACME Industries recruits former Warner Bros character Bugs Bunny as Pyrrhonic VP of Marketing
