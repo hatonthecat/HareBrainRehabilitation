@@ -21,3 +21,6 @@ For inquiries, contact Professional Person at Universal Lot #5, Trailer 2B:
 ![image](https://github.com/hatonthecat/HareBrainRehabilitation/assets/76194453/947ea028-d39c-4bdf-93cd-74abe980ad17)
 
 ACME Corporation is an open source (OSINT) intelligence firm that specializes in high-tech semiconductors and technology research. It is on track to become one of the [best](https://web.archive.org/web/20110804224001/http://www.washingtonpost.com/wp-srv/national/longterm/cult/larouche/larou1.htm) private intelligence firms since [Lyndon LaRouche](https://web.archive.org/web/20210709184653/https://www.motherjones.com/politics/2018/12/lyndon-larouche-roger-stone-russia-robert-mueller/).
+
+
+ACME chief Maigret was modeled as a cross between [ITV's 1992 Maigret](https://en.wikipedia.org/wiki/Maigret_%281992_TV_series%29) and [Martin Price](https://www.youtube.com/watch?v=zLUQPSuYvtY) (Murray Plotsky) from the 1984 [The Muppets Take Manhattan](https://en.wikipedia.org/wiki/The_Muppets_Take_Manhattan)
